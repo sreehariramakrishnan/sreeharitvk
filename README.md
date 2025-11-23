@@ -1,2 +1,0 @@
-# sreeharitvk
-Tvkvijayquotes
